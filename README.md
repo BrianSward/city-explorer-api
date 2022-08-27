@@ -26,6 +26,6 @@ Estimate of time needed to complete: no clue, based on the last few days somethi
 
 Start time: 3:45
 
-Finish time: _____
+Finish time: 6:22
 
-Actual time needed to complete: _____
+Actual time needed to complete: 2 hours 20 mins (i cooked and ate dinner in there, we had faux chicken wraps drizzled with honey mustard dressing and served with cheese and mixed greens inside a wrap)
